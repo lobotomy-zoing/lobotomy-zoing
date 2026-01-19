@@ -1,6 +1,8 @@
 ![image alt](https://github.com/lobotomy-zoing/Yahoo/blob/7972bb34f34f5f79c770e3511633e6865e4e854e/balloon.gif)![image alt](https://github.com/lobotomy-zoing/Yahoo/blob/7972bb34f34f5f79c770e3511633e6865e4e854e/balloon.gif)
 
 ## `✶⋆.˚𓈒⟡₊⋆∘˚⊹ ࿔`
+![image alt](https://github.com/lobotomy-zoing/lobotomy-zoing/blob/2ad4c8ac6d60a2a7dec37512771bbe199768ad83/ezgif.com-animated-gif-maker%20(1).gif)
+## `✶⋆.˚𓈒⟡₊⋆∘˚⊹ ࿔`
 
 ![image alt](https://github.com/lobotomy-zoing/Yahoo/blob/fe4b7e2c1469f2e56664977f01e402b350c1a021/New%20Drawing5%20(6)%20(1).png) ![image alt](https://github.com/lobotomy-zoing/Yahoo/blob/b9577bccacd78aa587c538baf9da34b1cca0f0ad/image%20(3).png)
 
