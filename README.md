@@ -19,6 +19,11 @@
 ## !!! IWC !!!
 ### Anyone who's oddly [and very oftently] rude ... I don't enjoy it even *if* it's all jokes ...
 ### Forsaken / MSI / CRK [just some of the fans ... ]
-### 12 and under I prefer you to just not interact period ...
+
+## !!! DNI !!!
+__I block freely but here is a small list for people .__
+### NSFW . Don't talk about it near me and keep it PRIVATE . I will immediately block you if you do so .
+### Under 12 , I don't want to interact with really young people ...
+### PROBLEMATIC Media [Alfred's Playhouse, TCOAAL, BTD, ETC.]
 
 ![image alt](https://github.com/lobotomy-zoing/Yahoo/blob/b9577bccacd78aa587c538baf9da34b1cca0f0ad/rainbowstars4%20(1).gif)![image alt](https://github.com/lobotomy-zoing/Yahoo/blob/b9577bccacd78aa587c538baf9da34b1cca0f0ad/rainbowstars4%20(1).gif)![image alt](https://github.com/lobotomy-zoing/Yahoo/blob/b9577bccacd78aa587c538baf9da34b1cca0f0ad/rainbowstars4%20(1).gif)![image alt](https://github.com/lobotomy-zoing/Yahoo/blob/b9577bccacd78aa587c538baf9da34b1cca0f0ad/rainbowstars4%20(1).gif)
