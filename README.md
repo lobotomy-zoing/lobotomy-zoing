@@ -28,4 +28,6 @@ __I block freely but here is a small list for people .__
 ### Under 12 , I don't want to interact with really young people ...
 ### PROBLEMATIC Media [Alfred's Playhouse, TCOAAL, BTD, ETC.]
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=4g0az9ou7b93dt996chnf9bih&cover_image=true&theme=novatorem&show_offline=false&background_color=1b1818&interchange=false&profanity=false&bar_color=f70850&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 ![image alt](https://github.com/lobotomy-zoing/Yahoo/blob/b9577bccacd78aa587c538baf9da34b1cca0f0ad/rainbowstars4%20(1).gif)![image alt](https://github.com/lobotomy-zoing/Yahoo/blob/b9577bccacd78aa587c538baf9da34b1cca0f0ad/rainbowstars4%20(1).gif)![image alt](https://github.com/lobotomy-zoing/Yahoo/blob/b9577bccacd78aa587c538baf9da34b1cca0f0ad/rainbowstars4%20(1).gif)![image alt](https://github.com/lobotomy-zoing/Yahoo/blob/b9577bccacd78aa587c538baf9da34b1cca0f0ad/rainbowstars4%20(1).gif)
