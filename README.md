@@ -20,12 +20,13 @@
 
 ## !!! IWC !!!
 ### Anyone who's oddly [and very oftently] rude ... I don't enjoy it even *if* it's all jokes ...
-### Forsaken / MSI / CRK [just some of the fans ... ]
 
 ## !!! DNI !!!
 __I block freely but here is a small list for people .__
 ### NSFW . Don't talk about it near me and keep it PRIVATE . I will immediately block you if you do so .
-### Under 12 , I don't want to interact with really young people ...
+### Radqueers / Profic / Proship / Darkship / etc.
+### Forsaken, CRK, MSI fans.
+### Under 12/13 , I don't want to interact with really young people ...
 ### PROBLEMATIC Media [Alfred's Playhouse, TCOAAL, BTD, ETC.]
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=4g0az9ou7b93dt996chnf9bih&cover_image=true&theme=novatorem&show_offline=false&background_color=1b1818&interchange=false&profanity=false&bar_color=f70850&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
